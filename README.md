@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Satya-Senior IT recruiter
+- 👀 I’m interested in ... networking
+- 🌱 I’m currently learning ...Github
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me ... sathya@gsnhr.net
